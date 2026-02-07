@@ -1,1 +1,0 @@
-# Pokazowka1
